@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Kaisomli 
+- I'm in Monash uni (commerce and comp sci)
+- Glued to the office 24/7 
